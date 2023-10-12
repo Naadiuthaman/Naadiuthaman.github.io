@@ -1,0 +1,1 @@
+https://www.google.com/maps/place/NaadiUthaman.com/@8.4869673,76.9403454,17z/data=!4m12!1m6!3m5!1s0x3b05bba1f65fdf19:0x3e8cc008b8ce7cf9!2sNaadiUthaman.com!8m2!3d8.4875351!4d76.9422498!3m4!1s0x3b05bba1f65fdf19:0x3e8cc008b8ce7cf9!8m2!3d8.4875351!4d76.9422498
